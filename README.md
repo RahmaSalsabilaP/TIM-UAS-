@@ -1,1 +1,0 @@
-Bhinneka Tunggal Ika
